@@ -23,7 +23,6 @@ discord: candycoatedfury , rblx: nxcrokitty
 
 (send art reqs 2 my ata and i might draw them and post them here !!! ^_^)
 
-(i dont play dw / support qwelver)
-</div>
+
 
 
